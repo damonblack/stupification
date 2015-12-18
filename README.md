@@ -16,7 +16,7 @@ Also - The Rules of Improve apply:
 4. Avoid asking questions- unless you’re also adding information.
 5. Play in the present and use the moment.
 6. Establish the location.
-7.Be specific and provide colorful details.
+7. Be specific and provide colorful details.
 8. Change, Change, Change!
 9. For serious and emotional scenes, focus on characters and relationships.
 10. For humorous scenes, take choices to the nth degree or focus on actions/objects.
